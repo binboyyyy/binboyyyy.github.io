@@ -5,7 +5,7 @@
 
 ![Kobe Bean Bryant](https://i.pinimg.com/564x/72/3a/30/723a3051bfa739ab9b783122abae1b0f.jpg)
 
- # **Personal Information**
+# **Personal Information**
 - Born at  *Philadelphia, Pennsylvania, United States, August 23, 1978*
 - *Number: 24 Los Angeles Lakers / Small forward, Shooting guard*
 - School: *Lower Merion High school*
@@ -25,4 +25,4 @@
 # Highlights Of The BLACK MAMBA
 [Kobe Bean Bryant "BLack Mamba"](https://www.google.com/search?q=kobe+bean+highlights&source=lmns&bih=963&biw=1920&hl=en&sa=X&ved=2ahUKEwjZ2u7VlvqCAxVPTGwGHUISBQoQ_AUoAHoECAEQAA#fpstate=ive&vld=cid:76b8ec8d,vid:jhyANGHDDH8,st:0)
 
-Kobe Bean Bryant was one of the legends that taught me how being a hardworker athlete i shoul be not just as a athelete but to be a better person off and on the court. His workethic showed me that being a player is not easy, i have to do things times two than the expected practice, I believed in "Practice before Practice, Practice during Practice, Practice after Practice" everything is not easy you have to work hard for it in order to get the best results off and on the court.
+Kobe Bean Bryant was one of the legends that taught me how being a hardworker athlete I should be not just as a athelete but to be a better person off and on the court. His workethic showed me that being a player is not easy, i have to do things times two than the expected practice, I believed in "Practice before Practice, Practice during Practice, Practice after Practice" everything is not easy you have to work hard for it in order to get the best results off and on the court.
